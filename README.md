@@ -1,1 +1,1 @@
-# Informacnistudia
+# Informační studia
